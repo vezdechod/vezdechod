@@ -1,0 +1,2 @@
+# vezdechod
+3GEcTYWNmZvsnAvFGNhDdE9VtnKvvcGwkS
